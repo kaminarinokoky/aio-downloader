@@ -7,6 +7,34 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 02:32
+---
+
+## FoxNewsTwitter — post 341966
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341966_1779231779.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: The Trump administration is preparing a possible indictment against former Cuban president Raúl Castro, brother of Fidel Castro, sources tell Fox News Digital.
+
+Sources pointed to a Department of Justice advisory Tuesday that announced a Miami press conference "in conjunction with a ceremony to honor the victims of the Brothers to the Rescue Murders of 1996."
+</div>
+
+## IranianMinds — post 20415
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20415_1779231780.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ما هم جام جهانی رو برای مزدوران جمهوری اسلامی تبدیل به جام جهنمی می‌کنیم.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 02:30
 ---
 
