@@ -7,6 +7,887 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/01 01:46
+---
+
+## VahidOOnLine — post 241409
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241409_1779401812.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایسنا گزارش داد تبادل پیام و متن بین جمهوری اسلامی و آمریکا با میانجی‌گری طرف پاکستانی همچنان ادامه دارد و به گفته منابع پاکستانی، سفر عاصم منیر، فرمانده ارتش پاکستان، به ایران در صورت نهایی شدن چارچوب مورد نظر دو طرف انجام خواهد شد.
+طبق این گزارش، محسن نقوی، وزیر کشور پاکستان، که هفته جاری برای بار دوم صبح روز چهارشنبه به تهران سفر کرد، حامل پیامی از سوی طرف آمریکایی برای تهران بود.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241408
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ محمد مخبر، مشاور رهبر جمهوری اسلامی، پنجشنبه‌شب ۳۱ اردیبهشت‌ماه در گفتگو با صدا و سیما گفت که از زمان مرگ ابراهیم رئیسی، رئیس دولت سیزدهم، تاکنون هیچ‌گاه باور نکرده است سقوط هلیکوپتر او یک «حادثه عادی» بوده باشد.
+
+مخبر گفت این موضوع را پیش‌تر با علی خامنه‌ای نیز مطرح کرده و در دیداری با او گفته است: «ما الان مستندی نداریم که ترور انجام گرفته باشد، اما هرچه برای من توضیح دادند که قضیه عادی بوده، بر ابهاماتم اضافه شده است.»
+
+او افزود: «هیچ‌وقت تا الان قبول نکردم که این فقط یک حادثه و سقوط عادی بوده است.» مجری برنامه نیز از او پرسید که آیا همچنان همین باور را دارد که مخبر پاسخ داد: «بله.»
+
+هلیکوپتر حامل ابراهیم رئیسی، رئیس دولت سیزدهم، حسین امیرعبداللهیان، وزیر خارجه، و هیئت همراه آنان عصر یکشنبه ۳۰ اردیبهشت ۱۴۰۳ در مسیر بازگشت به تبریز در شمال‌غرب ایران ناپدید شد. ساعاتی بعد، لاشه هلیکوپتر و اجساد سرنشینان پیدا شد. محمدعلی آل هاشم، امام جمعه تبریز، مالک رحمتی، استاندار آذربایجان شرقی، خلبان، کمک‌خلبان، اعضای تیم پرواز و چند عضو تیم حفاظت نیز در این حادثه کشته شدند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241407
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241407_1779401812.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، با انتشار پیامی در شبکه «تروث سوشال» اعلام کرد ایالات متحده ۵ هزار نیروی اضافی به لهستان اعزام خواهد کرد.
+او نوشت: «در پی برگزاری موفق انتخابات و انتخاب کارول ناوروتسکی به‌عنوان رئیس‌جمهوری لهستان؛ فردی که با افتخار از او حمایت کردم و با توجه به روابط ما با او، خوشحال هستم اعلام کنم ایالات متحده ۵ هزار نیروی اضافی به لهستان اعزام خواهد کرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241406
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241406_1779401813.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام، سناتور جمهوری‌خواه آمریکا، در پستی در ایکس نوشت ترامپ تاکید کرده است بدون توانایی غنی‌سازی، مسیری برای دستیابی به سلاح هسته‌ای وجود ندارد و به دلیل سابقه «تقلب» جمهوری اسلامی، تهران نباید اجازه ادامه غنی‌سازی را داشته باشد.
+او با هشدار درباره اینکه جمهوری اسلامی می‌تواند از حدود ۴۴۰ کیلوگرم اورانیوم با غنای بالا برای ساخت «بمب کثیف» یا غنی‌سازی بیشتر تا سطح ۹۰ درصد برای تولید سلاح هسته‌ای استفاده کند، گفت ترامپ همچنان تاکید دارد که جمهوری اسلامی نباید اجازه حفظ این مواد را داشته باشد.
+او همچنین جلوگیری از ادامه حمایت جمهوری اسلامی از گروه‌های نیابتی را از خطوط قرمز مذاکرات دانست و نوشت: «زمان همه‌چیز را مشخص خواهد کرد.»
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241405
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241405_1779401813.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران:
+«می‌گفت ما سال‌ها درد و رنج رو تحمل کردیم، اما هنوز ایستادیم…
+می‌گفت مردم ایران بیشتر از هر کسی این پیروزی رو می‌خوان، و حتما پیروز می‌شن.»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241404
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241404_1779401815.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+‌
+محمد مخبر، معاون ابراهیم رئیسی، گفت هرگز باور نکرده سقوط بالگرد حامل رئیسی «حادثه‌ای عادی» بوده باشد و افزود هرچه توضیحات بیشتری درباره عادی بودن ماجرا شنیده، «ابهاماتش بیشتر شده است.»
+
+مخبر همچنین گفت به علی خامنه‌ای گفته احتمال «دخالت نرم‌افزاری» در ارتباطات میان بالگردها وجود داشته است.
+
+این اظهارات در حالی مطرح می‌شود که گزارش نهایی ستاد کل نیروهای مسلح، علت سقوط بالگرد حامل ابراهیم رئیسی را «شرایط پیچیده جوی و مه غلیظ» اعلام کرده و هرگونه خرابکاری، ترور، جنگ الکترونیک یا نقص فنی را رد کرده است.
+
+بر اساس این گزارش، مسیر پرواز تغییر غیرعادی نداشته و کاهش دید ناشی از مه، علت اصلی برخورد بالگرد با کوه عنوان شده است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241403
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241403_1779401816.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ اعلام کرد آمریکا ۵ هزار نیروی نظامی دیگر به لهستان اعزام خواهد کرد.
+
+ترامپ در پیامی گفت این تصمیم پس از پیروزی کارول ناوروتسکی در انتخابات ریاست‌جمهوری لهستان و با توجه به روابط واشینگتن با او اتخاذ شده است.
+
+او نوشت: «بر اساس پیروزی موفقیت‌آمیز کارول ناوروتسکی، رئیس‌جمهوری کنونی لهستان، که با افتخار از او حمایت کردم، خوشحالم اعلام کنم آمریکا ۵ هزار نیروی اضافی به لهستان اعزام خواهد کرد.»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241402
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241402_1779401817.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ولادیمیر پوتین، رئیس‌جمهوری روسیه، پنج‌شنبه ۳۱ اردیبهشت، پس از برگزاری رزمایش گسترده هسته‌ای مشترک با بلاروس گفت استفاده از سلاح هسته‌ای «آخرین و استثنایی‌ترین راه‌حل» برای تامین امنیت ملی ما است.
+پوتین در جریان این رزمایش که با مشارکت حدود ۶۴ هزار نیرو، زیردریایی‌ها و موشک‌های هایپرسونیک برگزار شد، تاکید کرد سه‌گانه هسته‌ای روسیه و بلاروس باید همچنان «ضامن قابل اعتماد حاکمیت» دو کشور و عامل حفظ توازن قدرت در جهان باقی بماند.
+رییس جمهوری روسیه همچنین گفت: «ما مطلقا کسی را تهدید نمی‌کنیم، اما چنین سلاحی در اختیار داریم و آماده‌ایم از میهن مشترک خود از برست تا ولادی‌وستوک دفاع کنیم.»
+در این رزمایش، نیروهای روسیه و بلاروس تمرین مشترک مدیریت نیروهای هسته‌ای راهبردی و تاکتیکی، از جمله استفاده از تسلیحات مستقر در خاک بلاروس و شلیک موشک‌های بالستیک و کروز را انجام دادند.
+کشورهای اروپایی و ناتو این رزمایش را «تحریک‌آمیز» توصیف کرده‌اند. مارک روته، دبیرکل ناتو، نیز هشدار داده هرگونه حمله به اعضای این پیمان با پاسخی «ویرانگر» روبه‌رو خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11896
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای پدافند در تهران
+@withyashar
+</div>
+
+## WithYashar — post 11895
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : سلام همچنان صدای پدافند میاد اصفهان.
+@withyashar
+</div>
+
+## WithYashar — post 11894
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : درود خسته نباشی برادر به نظرم درگیری هست بین بندرعباس و سیریک تو دریا داخل تنگه مدام صدای بمب میاد
+@withyashar
+</div>
+
+## WithYashar — post 11893
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار یا پدافند شدید در قشم
+@withyashar
+</div>
+
+## WithYashar — post 11892
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام: ترامپ تاکید کرده است بدون توانایی غنی‌سازی، مسیری برای دستیابی به سلاح هسته‌ای وجود ندارد و به دلیل سابقه «تقلب» جمهوری اسلامی، تهران نباید اجازه ادامه غنی‌سازی را داشته باشد.
+این موضوع، همراه با هدف اعلام‌شده برای اطمینان از اینکه ایران نتواند از گروه‌های نیابتی تروریستی حمایت کند، از نظر من خطوط قرمز مذاکرات هستند و دلایل محکمی هم دارند.
+زمان مشخص خواهد کرد
+@withyashar
+</div>
+
+## WithYashar — post 11891
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات هوایی سنگین اسرائیل به جنوب لبنان
+منابع لبنانی از آغاز دور دیگر حملات جنوبی لبنان خبر دادند.
+تا این لحظه شهرک‌های زوطر، کفرا و شوکین هدف این حملات قرار گرفته‌اند.
+@withyashar
+</div>
+
+## WithYashar — post 11890
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۸ سوخت رسان در آسمان منطقه !!!!
+@withyashar
+</div>
+
+## WithYashar — post 11889
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Voice message
+</div>
+
+## WithYashar — post 11888
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند اصفهان فعال شده
+</div>
+
+## WithYashar — post 11887
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درود به اقا یاشار گل داداش من با این حرفت که میگی پادشاهی خوبه چون مردم میترسن حساب میبرن مخالفم چون بلاخره راه در رو برای دور زدن اون موضوع رو پیدا میکنن ولی اگه قبولش داشته باشن و بهش اعتماد داشته باشن بدون نیاز به ترسوندن دستور رو اجرا میکنن
+</div>
+
+## WithYashar — post 11886
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درود به اقا یاشار گل
+داداش من با این حرفت که میگی پادشاهی خوبه چون مردم میترسن حساب میبرن مخالفم
+چون بلاخره راه در رو برای دور زدن اون موضوع رو پیدا میکنن
+ولی اگه قبولش داشته باشن و بهش اعتماد داشته باشن بدون نیاز به ترسوندن دستور رو اجرا میکنن
+</div>
+
+## WithYashar — post 11885
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar eXtrime weekend
+</div>
+
+## WithYashar — post 11883
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درود به شرفت مرد
+حرف دلمونو زدی ❤️🔥
+</div>
+
+## mwarmonitor — post 9449
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سناتور لیندسی گراهام: رئیس‌جمهور ترامپ امروز بار دیگر به‌طور قاطع و بدون ابهام تأکید کرد که به ایران اجازه داده نخواهد شد بیش از ۹۰۰ پوند اورانیوم با غنای بالا در اختیار داشته باشد. ایران می‌تواند از آن برای ساخت یک «بمب کثیف» استفاده کند یا در آینده بالقوه آن را تا سطح ۹۰ درصد به سلاح هسته‌ای تبدیل کند. او امروز دوباره عزم خود را برای جلوگیری از داشتن هرگونه مسیر ایران به سوی سلاح هسته‌ای تقویت کرد. بدون توانایی غنی‌سازی، مسیری به سوی سلاح هسته‌ای وجود ندارد. رئیس‌جمهور با توجه به سابقه تقلب ایران، به‌طور جدی بر این موضوع پافشاری کرده است که ایران نباید اجازه غنی‌سازی داشته باشد.
+
+🔸به نظر من، این موارد—همراه با هدف اعلام‌شده برای اطمینان از اینکه ایران نتواند به حمایت از نیروهای نیابتی تروریستی ادامه دهد—به‌درستی خطوط قرمز مذاکرات هستند.
+
+زمان نشان خواهد داد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9448
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+و وضعیتی که الان در آن قرار داریم این است که به نظر نمی‌رسد بتوانیم به توافقی برسیم. فکر می‌کنم باید به همان جایی که از آن شروع کردیم برگردیم، تعهد خود را به اهداف اولیه [در قبال] این رژیم تجدید کنیم، و این عملیات مشترک را با اسرائیلی‌ها و ایالات متحده انجام…
+</div>
+
+## mwarmonitor — post 9447
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجری فاکس نیوز ؛ بنابر این پرزیدنت ترامپ اصرار دارد که ایالات متحده همچنان کارت‌های بازی (برگ برنده) را در برابر ایران در دست دارد و مدعی است که عجله‌ای برای توافق ندارد. این در حالی است که کاخ سفید گزارش جدید خبرگزاری رویترز را رد می‌کند؛ گزارشی که ادعا…
+</div>
+
+## mwarmonitor — post 9446
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مجری فاکس نیوز ؛ بنابر این پرزیدنت ترامپ اصرار دارد که ایالات متحده همچنان کارت‌های بازی (برگ برنده) را در برابر ایران در دست دارد و مدعی است که عجله‌ای برای توافق ندارد. این در حالی است که کاخ سفید گزارش جدید خبرگزاری رویترز را رد می‌کند؛ گزارشی که ادعا دارد رهبر ایران دستورالعمل جدیدی صادر کرده مبنی بر اینکه مواد هسته‌ای این کشور باید در داخل ایران باقی بماند. برای بحث در این باره، ژنرال بازنشسته چهار ستاره و تحلیلگر ارشد استراتژیک فاکس نیوز، ژنرال جک کین همراه ماست.
+ژنرال، دولت [آمریکا] با آنچه رهبر ایران گفته مخالفت می‌کند. من دقیقاً نمی‌دانم این به چه معناست. اما اساساً رهبر ایران می‌گوید مواد هسته‌ای [در کشور] باقی می‌ماند. شما چه شنیده‌اید؟
+
+🔵 ژنرال کین ؛ خب، من فکر نمی‌کنم این [حرف] منطقی باشد. فکر می‌کنم آنچه شنیده‌ام این است که احتمالاً [مواد هسته‌ای] به یک طرف سوم منتقل می‌شود. و قطعاً ایرانی‌ها می‌خواهند غنی‌سازی را برای به اصطلاح «اهداف غیرنظامی» حفظ کنند؛ همان غنی‌سازی ۳.۶۷ درصدی که در توافق برجام (توافق دوران اوباما) بود. من نمی‌توانم تصور کنم که این برای دولت [ترامپ] قابل قبول باشد، زیرا اگر هرگونه توانایی برای غنی‌سازی اورانیوم به آن‌ها بدهید، آن‌ها می‌توانند در مقطعی آن را به اورانیوم با درجه تسلیحاتی ارتقا دهند، که مشخصاً هدف آن‌ها هم همین است. بنابراین، هنوز باید چیزهای بیشتری دیده شود تا مشخص شود یک توافق خوب چه ویژگی‌هایی دارد.
+اما مشکل من با توافق در شرایط فعلی این است که ما ایران را آسیب‌دیده اما پابرجا رها می‌کنیم، و آن‌ها از این وضعیت خارج شده و با این دیدگاه خود را متقاعد می‌کنند که ایالات متحده را مجبور به عقب‌نشینی کرده‌اند. و در نتیجه‌ی آن، ما قطعاً یک طناب نجات به این رژیم می‌دهیم؛ برای اینکه چه کار کنند؟ برای اینکه خود را بازیابی کنند.
+و در این توافق، دارایی‌های آزادشده حدود ۱۰۰ میلیارد دلار است. احتمال دارد که بخشی از آن را در همان ابتدا به آن‌ها بدهیم و همچنین برخی از تحریم‌ها را کاهش دهیم. و قطعاً ما رفتار آن‌ها را زیر نظر خواهیم داشت، اما با این وجود، این یک طناب نجات برای رژیم است که بقای آن‌ها را برای سال‌های آینده تمدید می‌کند. در نهایت دولت بعدی [آمریکا] مجبور خواهد شد با آن‌ها دست‌وپنجه نرم کند.
+این آن نقطه‌ای نیست که ما از آن شروع کردیم. به یاد داشته باشید، ما شروع کردیم تا این رژیم را تضعیف کنیم، آن را تحت فشار شدید قرار دهیم و توانایی‌هایش را برای متجاوز بودن در منطقه و حمایت از گروه‌های نیابتی‌اش قطعاً از بین ببریم. و بدیهی است که هیچ‌گونه توانایی هسته‌ای به هیچ شکلی نداشته باشد و برنامه موشک‌های بالستیک خود را نیز به طور بسیار قابل توجهی کاهش دهد.
+و ایده این بود که رژیم را از نظر نظامی و همچنین اقتصادی تضعیف کنیم، تا در نهایت در مسیر فروپاشی قرار گیرد. و ما قرار بود این کار را به مردم ایران بسپاریم تا به آن‌ها برای انجام همین امر کمک کنیم.
+اما اگر در اینجا به یک توافق برسیم، داریم دارایی‌های آزاد شده و میلیاردها میلیارد دلار به آن‌ها می‌دهیم که به آن‌ها امکان بازیابی می‌دهد و طناب نجاتشان را طولانی‌تر می‌کند. به نظر من، این آن نقطه‌ای نیست که ما کار را با آن شروع کردیم.
+به نظر من اکنون شش هفته است که برای رسیدن به توافق تلاش می‌کنیم. در حالی که تا الان عملیات نظامی تا حد زیادی به پایان رسیده بود. و به عقیده من، تا آن زمان بخشی از فشارهایی که دولت [آمریکا] حس می‌کند، کاملاً برطرف شده بود.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9445
+
+
+
+
+## FoxNewsTwitter — post 342078
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342078_1779401818.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Trump’s 250-foot triumphal arch just cleared a key hurdle.
+
+The U.S. Commission of Fine Arts has approved the design, advancing a massive monument planned for an entrance to Washington, D.C.
+
+The arch will feature a Lady Liberty-style figure holding a torch, gilded eagles, gold lettering reading “One Nation Under God” and “Liberty and Justice for All,” and a public observation deck with 360-degree views, though the four lions originally planned for the base have been removed.
+
+📸: U.S. Commission of Fine Arts
+</div>
+
+## FoxNewsTwitter — post 342077
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The Graham Platner controversy continues to be a major headache for Democrats.
+
+Ahead of Memorial Day weekend, Platner is facing backlash over posts mocking U.S. troops, along with a resurfaced interview in which he suggested decorated Navy SEAL Chris Kyle killed civilians to inflate his combat record.
+
+Thousands of additional posts tied to the far-left Democrat also include racial remarks, anti-gay slurs, and attacks on veterans and rural Americans.
+
+Platner remains on the campaign trail, but as more voters uncover the posts, the fallout surrounding his Senate bid continues to grow, with Democrats already beginning to distance themselves from their previous support and endorsements.
+
+@willcain breaks down the vulgar attacks Platner has launched against U.S. troops and American patriots.
+
+@WillCainShow
+</div>
+
+## pm_afshaa — post 91180
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به عبارتی هر گیگ فقط 107 هزارتومن
+👍
+
+
+🚀@LexVipBot
+</div>
+
+## DEJradio — post 4830
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4830_1779401818.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎥 شعار شهروندان: اتحاد برای ایران
+
+#اتحاد #ایران
+@DEJradio
+</div>
+
+## IranIntlTV — post 338303
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338303_1779401819.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایسنا گزارش داد تبادل پیام و متن بین جمهوری اسلامی و آمریکا با میانجی‌گری طرف پاکستانی همچنان ادامه دارد و به گفته منابع پاکستانی، سفر عاصم منیر، فرمانده ارتش پاکستان، به ایران در صورت نهایی شدن چارچوب مورد نظر دو طرف انجام خواهد شد.
+طبق این گزارش، محسن نقوی، وزیر کشور پاکستان، که هفته جاری برای بار دوم صبح روز چهارشنبه به تهران سفر کرد، حامل پیامی از سوی طرف آمریکایی برای تهران بود.
+
+https://iranintl.com/202605216298
+</div>
+
+## IranIntlTV — post 338302
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338302_1779401820.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ بار دیگر تاکید کرد جمهوری اسلامی اجازه دستیابی به سلاح هسته‌ای را ندارد.
+
+او در پاسخ به خبرنگاران گفت ایالات متحده اورانیوم غنی‌شده ایران را خارج و نابود می‌کند.
+
+گزارش اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338301
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338301_1779401821.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام، سناتور جمهوری‌خواه آمریکا، در پستی در ایکس نوشت ترامپ تاکید کرده است بدون توانایی غنی‌سازی، مسیری برای دستیابی به سلاح هسته‌ای وجود ندارد و به دلیل سابقه «تقلب» جمهوری اسلامی، تهران نباید اجازه ادامه غنی‌سازی را داشته باشد.
+او با هشدار درباره اینکه جمهوری اسلامی می‌تواند از حدود ۴۴۰ کیلوگرم اورانیوم با غنای بالا برای ساخت «بمب کثیف» یا غنی‌سازی بیشتر تا سطح ۹۰ درصد برای تولید سلاح هسته‌ای استفاده کند، گفت ترامپ همچنان تاکید دارد که جمهوری اسلامی نباید اجازه حفظ این مواد را داشته باشد.
+او همچنین جلوگیری از ادامه حمایت جمهوری اسلامی از گروه‌های نیابتی را از خطوط قرمز مذاکرات دانست و نوشت: «زمان همه‌چیز را مشخص خواهد کرد.»
+
+https://iranintl.com/202605211326
+</div>
+
+## Shin_Persian — post 6130
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6130_1779401822.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 21 May 2026 21:44:53 UTC
+
+Blast sound in Qeshm, Hormozgan Province, #Iran
+Unclear reason.
+
+فارسی
+
+صدای انفجار در قشم، استان هرمزگان، #Iran
+دلیل آن نامشخص است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6129
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 21 May 2026 21:20:44 UTC
+
+Explosions heard in #DeirEzZor
+#Syria 🇸🇾
+
+فارسی
+
+صدای انفجارهایی در #دیرالزور شنیده شد
+#سوریه 🇸🇾
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6128
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 21 May 2026 21:18:03 UTC
+
+In a world where you see these two reports:
+1. "Pakistani CoS has arrived in Tehran" and
+2. "Pakistani CoS will NOT travel to Tehran"
+in less than 2 hours, just ignore every dumbass rumor and listen to Radiohead instead.
+
+فارسی
+
+در دنیایی که این دو گزارش را می‌بینید:
+۱. «رئیس ستاد مشترک ارتش پاکستان (CoS) وارد تهران شده است» و
+۲. «رئیس ستاد مشترک ارتش پاکستان به تهران سفر نخواهد کرد»
+آن هم در کمتر از ۲ ساعت، فقط تمام شایعات احمقانه را نادیده بگیرید و در عوض به ردیوهد (Radiohead) گوش دهید.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6127
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 21 May 2026 21:06:34 UTC
+
+Jet activity over Mosul, #KRI, #Iraq 🇮🇶
+
+فارسی
+
+فعالیت جنگنده‌ها بر فراز موصل، #اقلیم_کردستان، #عراق 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 105732
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105732_1779401822.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران:
+«می‌گفت ما سال‌ها درد و رنج رو تحمل کردیم، اما هنوز ایستادیم…
+می‌گفت مردم ایران بیشتر از هر کسی این پیروزی رو می‌خوان، و حتما پیروز می‌شن.»
+</div>
+
+## ManotoTV — post 105731
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105731_1779401824.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+‌
+محمد مخبر، معاون ابراهیم رئیسی، گفت هرگز باور نکرده سقوط بالگرد حامل رئیسی «حادثه‌ای عادی» بوده باشد و افزود هرچه توضیحات بیشتری درباره عادی بودن ماجرا شنیده، «ابهاماتش بیشتر شده است.»
+
+مخبر همچنین گفت به علی خامنه‌ای گفته احتمال «دخالت نرم‌افزاری» در ارتباطات میان بالگردها وجود داشته است.
+
+این اظهارات در حالی مطرح می‌شود که گزارش نهایی ستاد کل نیروهای مسلح، علت سقوط بالگرد حامل ابراهیم رئیسی را «شرایط پیچیده جوی و مه غلیظ» اعلام کرده و هرگونه خرابکاری، ترور، جنگ الکترونیک یا نقص فنی را رد کرده است.
+
+بر اساس این گزارش، مسیر پرواز تغییر غیرعادی نداشته و کاهش دید ناشی از مه، علت اصلی برخورد بالگرد با کوه عنوان شده است.
+</div>
+
+## ManotoTV — post 105730
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105730_1779401825.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ اعلام کرد آمریکا ۵ هزار نیروی نظامی دیگر به لهستان اعزام خواهد کرد.
+
+ترامپ در پیامی گفت این تصمیم پس از پیروزی کارول ناوروتسکی در انتخابات ریاست‌جمهوری لهستان و با توجه به روابط واشینگتن با او اتخاذ شده است.
+
+او نوشت: «بر اساس پیروزی موفقیت‌آمیز کارول ناوروتسکی، رئیس‌جمهوری کنونی لهستان، که با افتخار از او حمایت کردم، خوشحالم اعلام کنم آمریکا ۵ هزار نیروی اضافی به لهستان اعزام خواهد کرد.»
+</div>
+
+## FarsiVOA — post 218334
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218334_1779401825.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️مارکو روبیو، وزیر امورخارجه آمریکا، روز پنج‌شنبه به خبرنگاران گفت اصرار جمهوری اسلامی به دریافت عوارض از کشتی‌ها برای عبور از تنگه هرمز توافق با رژیم ایران را غیرممکن خواهد کرد. آقای روبیو گفت هیچ‌کس در جهان طرفدار چنین سیستم غیرقانونی نیست و گرفتن عوارض غیرقابل قبول است.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218333
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218333_1779401826.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز پنج‌شنبه گفت ۵ هزار نظامی دیگر آمریکایی را به لهستان اعزام می‌کند. آقای ترامپ گفت این کار را «بر اساس انتخاب‌شدن موفقیت‌آمیز کارول ناوروتسکی، که اکنون رئیس‌جمهوری لهستان است و من با افتخار از او حمایت کردم، و با توجه به رابطه‌ای که با او داریم» گرفته است.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14642
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/14642" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو امشب پنجشنبه ۳۱ اردیبهشت
+نسخه کم حجم ۶.۷ مگابایت
+
+اخبار ضد و نقیض از توافق ایران و آمریکا
+
+🫆SJ
+
+@persian_trend_official
+</div>
+
+## BBCPersian — post 281728
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🖊ایموجن فولکس
+در,برن
+
+🔻سرویس اطلاعات فدرال سوئیس اعلام کرده است که سرانجام پرونده‌های محرمانه و مهر و موم‌شده مربوط به یوزف منگله، جنایتکار بدنام جنگی نازی را منتشر خواهد کرد.
+
+منگله پس از جنگ جهانی دوم از اروپا گریخت، اما سال‌ها شایعه‌هایی وجود داشت مبنی بر این‌ که او مدتی را در سوئیس گذرانده است، آن هم در حالی که حکم بازداشت بین‌المللی برای او صادر شده بود.
+
+منگله پزشکی بود که در واحد وافن اس‌اس آلمان خدمت می‌کرد. او به اردوگاه مرگ آشویتس در لهستان تحت اشغال نازی‌ها اعزام شد؛ جایی که افرادی را برای فرستادن به اتاق‌های گاز انتخاب می‌کرد. برآورد می‌شود حدود یک میلیون و یکصد هزار نفر در آن اردوگاه جان باختند که نزدیک به یک میلیون نفر از آن‌ها یهودی بودند.
+
+او که به «فرشته مرگ» معروف شده بود، زندانیان، به‌ویژه کودکان و دوقلوها را نیز برای آزمایش‌های پزشکی سادیستی انتخاب می‌کرد و سپس آن‌ها را به سوی مرگ می‌فرستاد.
+
+متن کامل خبر را از لینک زیر بخوانید:
+
+📷Getty Images/ Regula Bochsler/ BBC
+https://bbc.in/4ujpD0G
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 281727
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نیروی دریایی سپاه پاسداران: ۳۱ کشتی با هماهنگی ما طی شبانه‌روز گذشته از تنگه هرمز عبور کرد
+
+🔻روابط عمومی نیروی دریای سپاه پاسداران، روز پنجشنبه ۳۱ اردیبهشت اعلام کرد که طی شبانه‌روز گذشته به «۳۱ کشتی» اجازه دادند که از تنگه‌هرمز عبور کنند.
+
+در این بیانیه که خبرگزاری ایرنا آن را منتشر کرده است،‌ آمده: «طی شبانه روز گذشته ۳۱ فروند کشتی اعم از نفتکش، کانتینر بر و سایر کشتی‌های تجاری با هماهنگی و تامین امنیت نیروی دریایی سپاه از تنگه هرمز عبور کردند.»
+
+نیروی دریایی سپاه پاسداران،‌ در این بیانیه ارتش آمریکا را «تروریستی» خواند و آن را به «ایجاد ناامنی بی‌سابقه» در خلیج فارس و تنگه هرمز متهم کرد.
+
+سپاه پاسداران می‌گوید که تلاش کرده مسیر مشخص و ایمنی برای عبور و استمرار تجارت جهانی ایجاد کند.
+
+این در حالی است که آمریکا هم می‌گوید که با محاصره بنادر ایران،‌ هیچ کشتی نمی‌تواند دربنادر ایران پهلو بگیرد یا بنادر را ترک کند.
+
+https://bbc.in/3RT3jfU
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389919
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389919_1779401826.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍 
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂ رایگان بهترین شرط هارو براتون میذاره حتی هزار تومن هم دریافت نمیکنه روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری…
+</div>
+
+## Dirty_Kids — post 389918
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389918_1779401827.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☢️خفن ترین و‌ قدیمی ترین  انالیزور  ایران ینی دکتر بت 
+👍
+
+
+🔴هیچ سایت بتی دوست نداره شما کانال دکتر بت رو پیدا کنین چون خیلی سود میکنید🤷‍♂
+
+رایگان بهترین شرط هارو براتون میذاره
+حتی هزار تومن هم دریافت نمیکنه
+روزانه میتونی از پیش بینی فوتبال باهاش پول در بیاری 👌
+A31
+اگ اهل پیش بینی فوتبالی این کانال اصلا از دست ندین👇
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+
+✅https://t.me/+4_ADqwB9e-QwYjlk
+</div>
+
+## Dirty_Kids — post 389917
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389917_1779401827.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#بخوابیم
+</div>
+
+## Dirty_Kids — post 389913
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389913_1779401827.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قسمت‌های دیگری از چالش دوربین‌به‌کون که توسط روس‌ها وایرال شده این چالش باعث خشکی کمر آقایون در سراسر دنیا شده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389912
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389912_1779401828.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله با شوکر به دانش‌آموزان!!!
+چرا؟؟ چون اعتراض دارن به امتحان حضوری.
+وحشت از مردم داره جرررتون میده.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389911
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏از وقتی که مجبورم به طور مداوم کانفیگ بخرم تازه دارم درک میکنم خرید ملزومات حجاب اجباری (لباس بلند و شال و مقنعه و...) چقدر تخمیه. یعنی عملا داری پول میدی که محدودتر زندگی کنی.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389910
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایوان گونچاروف توی کتاب اُبلوموف یه جمله داره که وقتی خوندمش چندبار با خودم تکرار کردم:
+"‌در غرب، رویاها برای تبدیل شدن به حقیقت بنا می‌شوند‌‌‌ و‌‌ در‌ شرق رویاها برای فرار از حقیقت!"
+به همین دلیل جغرافیا خودِ سرنوشته!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389909
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389909_1779401829.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا چپ از شاه متنفر بودند!
+
+
+@Dirty_Kids 👻
+</div>
+
+## manototv — post 105732
+
+<div align="center">
+  <a href="telegram/content/manototv_105732_1779401831.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران:
+«می‌گفت ما سال‌ها درد و رنج رو تحمل کردیم، اما هنوز ایستادیم…
+می‌گفت مردم ایران بیشتر از هر کسی این پیروزی رو می‌خوان، و حتما پیروز می‌شن.»
+</div>
+
+## manototv — post 105731
+
+<div align="center">
+  <a href="telegram/content/manototv_105731_1779401832.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+‌
+محمد مخبر، معاون ابراهیم رئیسی، گفت هرگز باور نکرده سقوط بالگرد حامل رئیسی «حادثه‌ای عادی» بوده باشد و افزود هرچه توضیحات بیشتری درباره عادی بودن ماجرا شنیده، «ابهاماتش بیشتر شده است.»
+
+مخبر همچنین گفت به علی خامنه‌ای گفته احتمال «دخالت نرم‌افزاری» در ارتباطات میان بالگردها وجود داشته است.
+
+این اظهارات در حالی مطرح می‌شود که گزارش نهایی ستاد کل نیروهای مسلح، علت سقوط بالگرد حامل ابراهیم رئیسی را «شرایط پیچیده جوی و مه غلیظ» اعلام کرده و هرگونه خرابکاری، ترور، جنگ الکترونیک یا نقص فنی را رد کرده است.
+
+بر اساس این گزارش، مسیر پرواز تغییر غیرعادی نداشته و کاهش دید ناشی از مه، علت اصلی برخورد بالگرد با کوه عنوان شده است.
+</div>
+
+## manototv — post 105730
+
+<div align="center">
+  <a href="telegram/content/manototv_105730_1779401833.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ اعلام کرد آمریکا ۵ هزار نیروی نظامی دیگر به لهستان اعزام خواهد کرد.
+
+ترامپ در پیامی گفت این تصمیم پس از پیروزی کارول ناوروتسکی در انتخابات ریاست‌جمهوری لهستان و با توجه به روابط واشینگتن با او اتخاذ شده است.
+
+او نوشت: «بر اساس پیروزی موفقیت‌آمیز کارول ناوروتسکی، رئیس‌جمهوری کنونی لهستان، که با افتخار از او حمایت کردم، خوشحالم اعلام کنم آمریکا ۵ هزار نیروی اضافی به لهستان اعزام خواهد کرد.»
+</div>
+
+## alonews — post 121679
+
+<div align="center">
+  <img src="telegram/content/alonews_121679_1779401834.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه بسته چیپس ساده شده 525 هزار تومن!!!
+
+هر دونه چیپسی که میخورین 3 هزار تومن ناقابل.
+
+[@AloTweet]
+</div>
+
+## alonews — post 121678
+
+<div align="center">
+  <a href="telegram/content/alonews_121678_1779401834.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حرمله در صدا و سیما: دلم واستون میسوزه ولی دوستون دارم، اما این‌بار بزارین فراخوان بدن ببینیم کت تن کیه.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121677
+
+<div align="center">
+  <a href="telegram/content/alonews_121677_1779401835.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امروز ۱ خرداد تولد ترامپ هست
+
+
+🔴بفرست برا خردادی‌های مودی
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121676
+
+<div align="center">
+  <a href="telegram/content/alonews_121676_1779401836.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع خبری از شنیده‌شدن صدای انفجارهای مهیب در دیرالزور سوریه خبر دادند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121675
+
+<div align="center">
+  <a href="telegram/content/alonews_121675_1779401836.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ایسنا: منابع پاکستانی به برخی رسانه های مستقر در اسلام آباد اعلام کردند در صورت به نتیجه رسیدن گفت وگوهای وزیر کشور در تهران، فیلد مارشال عاصم منیر فرمانده ارتش این کشور به تهران سفر خواهد کرد اما آخرین خبرها تا پنجشنبه شب حاکی از آن است که رایزنی ها بر سر معدود اختلافات هنوز نهایی نشده است.
+
+
+🔴منابع پاکستانی اعلام کردند سفر فرمانده ارتش پاکستان در صورت نهایی شدن چارچوب مورد نظر میان دو طرف انجام خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121674
+
+<div align="center">
+  <a href="telegram/content/alonews_121674_1779401836.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سوتی بزرگ در صدا و سیما
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121673
+
+<div align="center">
+  <a href="telegram/content/alonews_121673_1779401837.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سخنگوی وزارت خارجه روسیه ماریا زاخاروا: زلنسکی به احتمال اقدام اجباری علیه ترانس‌نیستریا اشاره کرده است.
+
+
+🔴او به کل جهان تهدید می‌کند، نه تنها ساکنان ترانس‌نیستریا بلکه فضای اوراسیا را نیز. او فکر می‌کند که شیطان را از شاخ‌ها گرفته و محکم نگه داشته است.
+
+
+🔴او قصد دارد با ترانس‌نیستریا برخورد کند — هرگونه تجاوز به هموطنان ما در ترانس‌نیستریا بلافاصله و به طور مناسب پاسخ داده خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121672
+
+<div align="center">
+  <a href="telegram/content/alonews_121672_1779401840.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون رئیس دفتر کاخ سفید در امور سیاست، استیون میلر: تقسیم سیاسی اصلی در آمریکا امروز بین دیدگاهی از آمریکا به عنوان یک کشور جهان اول و دیدگاهی از آمریکا به عنوان یک کشور جهان سوم است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121671
+
+<div align="center">
+  <a href="telegram/content/alonews_121671_1779401841.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مخبر : اروپایی‌ها چپو راست برای عبور از تنگه هرمز به ما پیام میدن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121670
+
+<div align="center">
+  <a href="telegram/content/alonews_121670_1779401842.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آسوشیتدپرس: احمد وحیدی، فرمانده سپاه پاسداران، به یکی از چهره‌های اصلی در مذاکرات تبدیل شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121669
+
+<div align="center">
+  <a href="telegram/content/alonews_121669_1779401842.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیروهای پشتیبانی سریع تحت حمایت امارات متحده عربی فیلمی منتشر کردند که حمله پهپادی به یک سامانه هیسار-آ ساخت ترکیه که توسط نیروهای مسلح سودان در نزدیکی منطقه راهید النوبا در شمال کردفان عملیاتی شده بود را نشان می‌دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121668
+
+<div align="center">
+  <a href="telegram/content/alonews_121668_1779401843.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دیواری به افتخار رئیس‌جمهور ترامپ، معاون رئیس‌جمهور جی‌دی ونس، و وزیر امور خارجه مارکو روبیو در کنسولگری جدید آمریکا در نوک، گرینلند نصب شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/01 00:23
 ---
 
