@@ -7,6 +7,682 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 06:02
+---
+
+## VahidOOnLine — post 242510
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز چهارشنبه ۶ خردادماه در نشست کاخ سفید اعلام کرد که کشورهایی مانند عربستان سعودی و قطر باید به «پیمان ابراهیم» بپیوندند و این اقدام را یک رویداد تاریخی خواند. ترامپ با بیان اینکه این کشورها به خاطر کارهایی که برایشان انجام شده به آمریکا مدیون هستند، تاکید کرد که اگر آن‌ها این پیمان را امضا نکنند، مشخص نیست واشنگتن توافقی را با ایران انجام دهد یا خیر.
+رئیس‌جمهوری آمریکا اضافه کرد کشورهای امضاکننده فعلی این توافق، از جمله امارات متحده عربی، نتایج مثبتی از آن گرفته‌اند و این توافق «بسیار موثر» بوده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242509
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242509_1779935546.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش فاکس‌نیوز، یک مقام وزارت کشور بنگلادش اعلام کرد که یک گاومیش سفید نادر «آلبینو» که به دلیل موهای طلایی «دونالد ترامپ» نام‌گذاری شده بود، با دخالت مستقیم و به‌موقع دولت از قربانی شدن در روز عید قربان نجات یافت.
+بر اساس این گزارش، این گاومیش که پیش‌تر برای قربانی فروخته شده بود، پس از انتشار گسترده ویدیوهایش به جاذبه‌ای ملی تبدیل شد و هجوم جمعیت به محل نگهداری آن، مقام‌های دولتی را وادار به مداخله و جلوگیری از ذبح آن کرد. در نهایت با این تصمیم دولت، مقرر شد این گاومیش به جای کشتارگاه، به باغ‌وحش ملی در داکا منتقل شود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242508
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242508_1779935547.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم به نقل از یک منبع آگاه نظامی گزارش داد ساعاتی پیش یک نفتکش آمریکایی با خاموش کردن سیستم راداری خود قصد عبور از تنگه هرمز را داشت، اما پس از شلیک نیروی دریایی سپاه، این نفتکش مجبور به توقف و بازگشت شد.
+پیش‌ترآکسیوس به نقل از یک مقام ارشد آمریکایی گزارش داد جمهوری اسلامی چهار پهپاد انتحاری را به سوی یک کشتی نیروی دریایی آمریکا و یک کشتی تجاری شلیک کرد، اما نیروهای آمریکا این پهپادها را سرنگون کردند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242507
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تیم ملی فوتبال عربستان سعودی که برای برپایی مرحله پایانی برنامه آماده‌سازی خود برای جام جهانی ۲۰۲۶ وارد آمریکا شده است، تمرینات آمادگی خود را در شهر نیویورک آغاز کرد. بر اساس برنامه اعلام‌شده، این اردو تا ۱۰ خرداد در نیویورک ادامه خواهد داشت و ملی‌پوشان عربستان سعودی در جریان آن، روز شنبه ۹ خرداد در یک مسابقه دوستانه به مصاف تیم ملی اکوادور خواهند رفت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242506
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، در نشست کابینه در کاخ سفید گفت هیچ کشوری تنگه هرمز را کنترل نخواهد کرد و این آبراه، آب‌های بین‌المللی محسوب می‌شود.
+ترامپ گفت: «هیچ‌کس قرار نیست آن را کنترل کند. ما مراقب آن خواهیم بود، اما کسی کنترلش نخواهد کرد.» او افزود باز بودن تنگه هرمز برای همه، بخشی از مذاکرات جاری است.
+رئیس‌جمهوری آمریکا همچنین با اشاره به عمان گفت این کشور نیز «مانند دیگران رفتار خواهد کرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242497
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هشت روایت کوتاه از هشت زندگی ناتمام.<
+از شاهین‌شهر تا تهرانپارس، از کرج تا زنجان؛ جوانانی که بعضی تازه وارد زندگی مشترک، کار یا آینده‌ای تازه شده بودند، در خیابان‌های ایران هدف گلوله قرار گرفتند. بعضی در آغوش خانواده جان دادند، بعضی با تیر خلاص کشته شدند و بعضی حتی پس از مرگ، حقیقت کشته‌شدنشان انکار شد.<
+روزبه صفری هلیسادی، مجتبی انصاری‌فرد، اشکان شهبازی، ساینا نظام‌دوست، صفا فرزانفر، رضا کاووسی حیدری، عرشیا براری و آرمین سلطان‌محمدی؛
+جاویدنامان انقلاب ملی ایرانیان.<
+این نام‌ها سند خشونتی است که بر مردم ایران گذشت؛ و یادشان بخشی از راهی است که تا آزادی ادامه دارد.<
+#جاویدنامان_انقلاب_ملی_ایرانیان
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242496
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242496_1779935548.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی در گفت‌وگو با رویترز از حملات جدید آمریکا به یک سایت نظامی در ایران خبر داد و گفت ارتش آمریکا همچنین چندین پهپاد ایرانی را رهگیری و سرنگون کرده است. هنوز به جزییات این سایت نظامی و تعداد پهپادها اشاره‌ای نشده است.
+ساعتی پیش در پی شنیده شدن صدای ۳ انفجار در شرق بندرعباس، پدافند هوایی این شهر فعال شد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12768
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام آمریکایی به شبکه CBS نیوز گفت : آتش‌بس با ایران پس از حملات امشب همچنان در حال اجرا در نظر گرفته می‌شود.
+@withyashar
+</div>
+
+## WithYashar — post 12767
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«رویترز» به نقل از یک مقام آمریکایی گزارش داد: ارتش آمریکا حملات هوایی جدیدی را علیه یک سایت نظامی ایران انجام داد که تهدیدی برای نیروها و ناوبری ما در تنگه هرمز محسوب می‌ شد @withyashar
+</div>
+
+## WithYashar — post 12766
+
+
+
+
+## WithYashar — post 12765
+
+
+
+
+## WithYashar — post 12764
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشات تأیید نشده از ترور سردار علی عظمایی، جانشین سردار علیرضا تنگسیری، فرمانده نیروی دریایی سپاه. @withyashar
+</div>
+
+## FoxNewsTwitter — post 342334
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342334_1779935549.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Jill Biden is now admitting she feared something was seriously wrong with Joe Biden during his 2024 debate against Donald Trump.
+
+“I thought, ‘Oh, my God, he’s having a stroke,’” the former first lady recalled in a new interview. She said she'd never seen him like that before, and hasn't seen him like that since.
+
+Her alarm is a sharp contrast to her public reaction immediately after the debate, when she praised Biden for doing "such a great job" and answering "every question."
+
+The debate meltdown ultimately triggered weeks of panic inside the Democratic Party, which resulted in Biden dropping out of the race.
+</div>
+
+## FoxNewsTwitter — post 342333
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Texas Senate nominee James Talarico holds general election kick-off rally in Houston https://twitter.com/i/broadcasts/1qKVmmwNMjVxB
+</div>
+
+## FoxNewsTwitter — post 342332
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342332_1779935552.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: The U.S. struck an Iranian ground control station in Bandar Abbas that was about to launch an attack drone, officials tell FOX News.
+
+Four other Iranian one-way attack drones that posed a threat in the Strait of Hormuz were also shot down, the officials said.
+
+"These actions were measured, purely defensive, and intended to maintain the ceasefire."
+</div>
+
+## FoxNewsTwitter — post 342331
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342331_1779935553.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: VP Vance waves as he boards Air Force Two with Second Lady Usha Vance.
+
+The vice president will be speaking at the United States Air Force Academy’s 68th graduation ceremony on Thursday.
+</div>
+
+## pm_afshaa — post 91706
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://406d8436-0eb9-4eb2-84fb-960e076ffba6@104.17.121.71:443?mode=stream-one&path=%2Fde&security=tls&encryption=none&insecure=0&fp=chrome&type=xhttp&allowInsecure=0&sni=de.lezzatzone.ir#PMTV%20NEWS%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91705
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpvWklvQTY5UTh5aGNRVjhrYTNQYTNB@82.38.31.149:8080#PMTV%20NEWS%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91704
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://406d8436-0eb9-4eb2-84fb-960e076ffba6@104.17.121.71:443?mode=stream-one&path=%2Fde&security=tls&encryption=none&insecure=0&host=de.lezzatzone.ir&fp=chrome&type=xhttp&allowInsecure=0&sni=de.lezzatzone.ir#PMTV%20NEWS%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+نامحدود پرسرعت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75762
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75762_1779935556.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های دریافتی:
+
+سلام وحید الان کویت رو زد ۵/۲۰
+
+وحيد همين الان اژير كويت فعال شد
+
+سلام صدای پدافند و تقریبا ۲ تا انفجار در کویت
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75761
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75761_1779935557.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+☄️ یک مقام آمریکایی به سی‌بی‌اس گفت ایالات متحده حملات جدیدی را علیه یک سایت نظامی ایران انجام داده ولی آتش‌بس همچنان برقرار است.
+cbsnews
+یک مقام آمریکایی در گفت‌وگو با رویترز از حملات جدید آمریکا به یک سایت نظامی در ایران خبر داد و گفت ارتش آمریکا همچنین چندین پهپاد ایرانی را رهگیری و سرنگون کرده است. هنوز به جزییات این سایت نظامی و تعداد پهپادها اشاره‌ای نشده است.
+ساعتی پیش در پی شنیده شدن صدای ۳ انفجار در شرق بندرعباس، پدافند هوایی این شهر فعال شد.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 339334
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339334_1779935557.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم به نقل از یک منبع آگاه نظامی گزارش داد ساعاتی پیش یک نفتکش آمریکایی با خاموش کردن سیستم راداری خود قصد عبور از تنگه هرمز را داشت، اما پس از شلیک نیروی دریایی سپاه، این نفتکش مجبور به توقف و بازگشت شد.
+پیش‌ترآکسیوس به نقل از یک مقام ارشد آمریکایی گزارش داد جمهوری اسلامی چهار پهپاد انتحاری را به سوی یک کشتی نیروی دریایی آمریکا و یک کشتی تجاری شلیک کرد، اما نیروهای آمریکا این پهپادها را سرنگون کردند.
+
+https://iranintl.com/202605282248
+</div>
+
+## IranIntlTV — post 339325
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هشت روایت کوتاه از هشت زندگی ناتمام.
+از شاهین‌شهر تا تهرانپارس، از کرج تا زنجان؛ جوانانی که بعضی تازه وارد زندگی مشترک، کار یا آینده‌ای تازه شده بودند، در خیابان‌های ایران هدف گلوله قرار گرفتند. بعضی در آغوش خانواده جان دادند، بعضی با تیر خلاص کشته شدند و بعضی حتی پس از مرگ، حقیقت کشته‌شدنشان انکار شد.
+روزبه صفری هلیسادی، مجتبی انصاری‌فرد، اشکان شهبازی، ساینا نظام‌دوست، صفا فرزانفر، رضا کاووسی حیدری، عرشیا براری و آرمین سلطان‌محمدی؛
+جاویدنامان انقلاب ملی ایرانیان.
+این نام‌ها سند خشونتی است که بر مردم ایران گذشت؛ و یادشان بخشی از راهی است که تا آزادی ادامه دارد.
+#جاویدنامان_انقلاب_ملی_ایرانیان
+</div>
+
+## IranIntlTV — post 339324
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339324_1779935558.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی در گفت‌وگو با رویترز از حملات جدید آمریکا به یک سایت نظامی در ایران خبر داد و گفت ارتش آمریکا همچنین چندین پهپاد ایرانی را رهگیری و سرنگون کرده است. هنوز به جزییات این سایت نظامی و تعداد پهپادها اشاره‌ای نشده است.
+ساعتی پیش در پی شنیده شدن صدای ۳ انفجار در شرق بندرعباس، پدافند هوایی این شهر فعال شد.
+
+https://iranintl.com/202605271743
+</div>
+
+## Shin_Persian — post 6267
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 28 May 2026 01:49:46 UTC
+
+Treasury's Economic Fury campaign targets Iran's Persian Gulf Strait Authority (PGSA), a new IRGC extortion scheme charging illegitimate "tolls" for vessels transiting the Strait of Hormuz.
+
+𝐃𝐄𝐒𝐈𝐆𝐍𝐀𝐓𝐄𝐃 𝐄𝐍𝐓𝐈𝐓𝐘:
+
+• 𝐏𝐞𝐫𝐬𝐢𝐚𝐧 𝐆𝐮𝐥𝐟 𝐒𝐭𝐫𝐚𝐢𝐭 𝐀𝐮𝐭𝐡𝐨𝐫𝐢𝐭𝐲 (𝐏𝐆𝐒𝐀) - Iranian government agency that coordinates with IRGC and IRGC Navy to extort commercial vessels through forced route compliance, information submission requirements, and passage fees that fund the designated Foreign Terrorist Organization IRGC.
+
+𝐊𝐄𝐘 𝐎𝐏𝐄𝐑𝐀𝐓𝐈𝐎𝐍𝐀𝐋 𝐃𝐄𝐓𝐀𝐈𝐋𝐒:
+
+- Vessels must submit requested information to receive "permission" from PGSA to transit the Strait of Hormuz
+- PGSA forces vessels to follow Iranian-designated routes near Iran's coast under IRGC instructions
+- Extortion payments accepted via fiat currency, digital assets, offsets, informal swaps, or in-kind payments including nominally charitable donations
+- All toll revenues are funneled directly to the IRGC
+
+𝐄𝐂𝐎𝐍𝐎𝐌𝐈𝐂 𝐅𝐔𝐑𝐘 𝐂𝐀𝐌𝐏𝐀𝐈𝐆𝐍 𝐈𝐌𝐏𝐀𝐂𝐓:
+
+- Treasury has disrupted tens of billions of dollars in Iranian regime revenue
+- Nearly $500 million in regime-linked cryptocurrency frozen
+- Targeted shadow banking networks, weapons supply chains, and shadow fleet operations
+- Secondary sanctions risk for foreign financial institutions facilitating Iranian activities
+
+𝐒𝐀𝐍𝐂𝐓𝐈𝐎𝐍𝐒 𝐈𝐌𝐏𝐋𝐈𝐂𝐀𝐓𝐈𝐎𝐍𝐒:
+
+- Designated under E.O. 13224 for materially assisting the IRGC
+- All U.S. persons prohibited from transactions involving PGSA
+- Foreign entities cooperating with the strait authority face sanctions exposure
+- Secondary sanctions possible for foreign financial institutions conducting significant transactions with PGSA
+- Violations may result in civil or criminal penalties on strict liability basis
+
+𝐂𝐎𝐌𝐏𝐋𝐈𝐀𝐍𝐂𝐄 𝐖𝐀𝐑𝐍𝐈𝐍𝐆:
+
+Any cooperation with the Persian Gulf Strait Authority may constitute providing support to the IRGC and expose parties to U.S. sanctions risk, regardless of payment method or justification.
+
+ترجمه فارسی در بخش نظرات
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6266
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Wed, 27 May 2026 23:55:28 UTC
+
+It was USN again apparently
+
+فارسی
+
+ظاهراً باز هم کار نیروی دریایی ایالات متحده (USN) بود.
+
+𝕏 · @shin_persian
+</div>
+
+## Iliaen — post 4437
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بامداد پنجشنبه؛ زیرنویس صدا و سیما: چند صدای انفجار در بندعباس شنیده شد؛ رویترز به نقل از یک مقام آمریکایی مدعی حمله به یک موقعیت نظامی در بندرعباس شد.
+
+همچنین خبرگزاری CBS به نقل از مقامات ایالات متحده می‌گوید یک سایت نظامی در خاک ایران هدف حمله قرار گرفت.
+
+@iliaen
+</div>
+
+## FarsiVOA — post 218860
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺آمریکا نهاد تازه تاسیس جمهوری اسلامی برای «مدیریت» تنگه هرمز را تحریم کرد
+
+▪️وزارت خزانه‌داری آمریکا روز چهارشنبه ۶ خرداد اعلام کرد دفتر کنترل دارایی‌های خارجی این وزارتخانه (اوفک) نهاد موسوم به «مدیریت آبراه خلیج فارس» را که جمهوری اسلامی برای کنترل بر تنگه هرمز ایجاد کرده است، تحریم‌ کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8154809.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218859
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218859_1779935558.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سایت تسنیم، نزدیک به سپاه پاسداران، به نقل از فردی که او را یک «منبع آگاه نظامی» خواند، اوایل روز پنج‌شنبه به وقت محلی گزارش داد که نیروهای سپاه به یک «نفتکش آمریکایی» که قصد داشت از تنگه هرمز عبور کند، حمله کردند. پیشتر یک مقام ایالات متحده به صدای آمریکا گفته بود که نیروهای آمریکایی در اقدامی دفاعی چهار پهپاد شلیک‌شده جمهوری اسلامی را منهدم و یک سایت پهپادی را نیز پیش از شلیک پنجمین پهپاد هدف قرار دادند. این تحولات هم‌زمان با گزارش‌های مردمی از وقوع انفجارهایی در بندرعباس گزارش می‌شود. باراک راوید خبرنگار آکسیوس نیز پیشتر گزارش داد که یک مقام ارشد آمریکایی گفته بود جمهوری اسلامی چهار پهپاد انتحاری را به سمت یک کشتی تجاری آمریکایی شلیک کرد و ارتش آمریکا این پهپادها را سرنگون کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218858
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺انفجارها در بندرعباس؛ مقام آمریکایی به صدای آمریکا: حملات ایالات متحده به پهپادها و مرکز پهپادی جمهوری اسلامی «سنجیده» و «دفاعی» بود
+
+▪️کاربران شبکه‌های اجتماعی از وقوع چندین انفجار در ساعات اولیه روز پنج‌شنبه ۷ خرداد در بندرعباس خبر دادند. طبق اطلاعات کانال تلگرامی وحیدآنلاین، این انفجارها بین حدود ساعت ۱:۳۰ بامداد تا نزدیک به ۲ بامداد شنیده شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8154603.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218857
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺دونالد ترامپ از انتخاب شدن مجدد نیکول پاشینیان حمایت کامل کرد؛ رئيس جمهوری آمریکا: «ارمنستان را دوباره با عظمت کنیم»
+
+▪️دونالد ترامپ، رئیس جمهوری آمریکا، روز چهارشنبه اعلام کرد که از انتخاب شدن مجدد نیکول پاشینیان، نخست‌وزیر عربستان در انتخابات ۷ ژوئن ۲۰۲۶، حمایت کامل و تمام می‌کند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8154808.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218856
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️اختلاف و دوگانگی میان کشورهای اتحادیه اروپا در مهار غول‌های فناوری؛ نگرانی از تنش با آمریکا
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218855
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺انفجارها در بندرعباس؛ گزارش‌ها از دور تازه‌ای از حملات ارتش آمریکا به اهدافی در ایران و مقابله آن‌ با حملات پهپادی جمهوری اسلامی
+
+▪️کاربران شبکه‌های اجتماعی از وقوع چندین انفجار در ساعات اولیه روز پنج‌شنبه ۷ خرداد در بندرعباس خبر دادند. طبق اطلاعات کانال تلگرامی وحیدآنلاین، این انفجارها بین حدود ساعت ۱:۳۰ بامداد تا نزدیک به ۲ بامداد شنیده شد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8154603.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15156
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15156_1779935559.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم: امریکا به یک زمین سوخته در حوالی بندرعباس حمله کرده!
+
+تسنیم از نقل یک مقام نظامی می‌گوید: ساعاتی پیش یک نفتکش آمریکایی با خاموش کردن سیستم راداری خود قصد عبور از تنگه هرمز را داشت که با اقدام سریع و قاطع نیروی دریایی سپاه و شلیک به سمت آن، مجبور به توقف و بازگشت شد.
+
+در مقابل، ارتش امریکا به زمین سوخته‌ای در اطراف بندرعباس شلیک کرد که صدای انفجارها مربوط به این ماجرا بوده است؛ این شلیک هیچ خسارت جانی یا مالی به همراه نداشته است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15155
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15155_1779935559.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام دیگر آمریکایی در گفتگو با شبکه ان‌بی‌سی نیوز گفته است که پس از مجموعه‌ای از حملات موشکی، پهپادی و قایق‌های کوچک توسط سپاه پاسداران، امشب حملات بسیار محدود و بسیار دقیقی توسط ارتش ایالات متحده انجام شده است.
+
+این حملات محدود ولی بسیار دقیق ارتش ایالات متحده در نزدیکی شهر بندرعباس در جنوب ایران انجام شده.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15154
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15154_1779935560.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در همین حین یک پهپاد اسرائیلی خودرویی را در نزدیکی شهر عدلون در جنوب لبنان مورد هدف حمله خود قرار داد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15153
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15153_1779935561.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما پس از تایید خبر حمله امریکا توسط رسانه های خبری متعدد: نشانه‌ایی از انفجار در بندر عباس دیده نشده است!
+
+صداوسیما می‌گوید برخی از مردم صدای این انفجار را شنیده اند(!) و هیچ یک از مقام‌های رسمی پیرو این موضوع هیچ اطلاعیه رسمی نداده اند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15152
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15152_1779935562.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرهایی که از ترور علی عظمایی جانشین سردار تنگسیری دست به دست می‌شود برای اولین بار توسط منابع خبری نامعتبر و زرد منتشر شده.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15151
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی در مصاحبه با شبکه سی‌بی‌اس نیوز ادعا کرد با وجود حملاتی که امشب انجام شده آتش بس همچنان پابرجا تلقی می‌شود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15150
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15150_1779935563.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس به نقل از یک مقام ارشد امریکایی می‌گوید طرف ایرانی چهار پهپاد انتحاری به سمت یک ناو نیروی دریایی امریکا و یک شناور تجاری شلیک کرده است.
+
+به گفته اکسیوس نیروهای آمریکایی این پهپادها را رهگیری و همچنین یک واحد پهپادی را قبل از آنکه پهپادی شلیک کند منهدم کردند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15149
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15149_1779935564.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما جمهوری اسلامی پس از گذشت حدود دو ساعت از شنیده شدن صدای انفجار در بندرعباس خبر حمله را به این شکل تأیید کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15148
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15148_1779935565.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله مجدد هوایی ارتش ایالات متحده به بندرعباس
+
+به نقل از گزارش دقایقی پیش رویترز، ایالات متحده امریکا حملات هوایی جدیدی را علیه مناطقی در بندرعباس انجام داده است.
+
+به گفته مقاماتی امریکایی این مناطق تهدیدی برای نیروهای ایالات متحده و کشتی‌های تجاری در تنگه هرمز محسوب می‌شدند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20923
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20923_1779935566.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به یاد آنان که جسارت بیشتری از ما داشتند، حرف ما را بلندتر فریاد زدند و اکنون در کنار ما نیستند…
+
+ما هیچوقت پا پس نمیکشیم و تا پایان این حکومت و گرفتن انتقام عزیزانمون مبارزه میکنیم و در آخر فراموش نکنید , ما پیروزیم !
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20922
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ثبت نام کن ۵۰۰ هزارتومان جایزه بگیر
+نیازی هم به واریز نیست
+تنها سایت مورد #تایید ما با بونوس های واقعی:
+
+🌐
+🌐 Winro.io
+</div>
+
+## IranianMinds — post 20921
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20921_1779935569.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎯شانستو #رایگان امتحان کن 
+⚠️
+
+
+🤔 میدونستی توی #وینرو میتونی رایگان شرط ببندی؟
+
+
+👍تنها کاری که باید بکنی اینه که عضو سایتش بشید و 
+🤩
+🤩
+🤩 هزارتومان جایزه بگیرید بدون نیاز به واریز
+
+
+💖تنها سایت مورد اعتماد ما با بونوس های کاملا واقعی و رویایی:
+
+🌐 Winro.io
+
+🌐 Winro.io
+کانال بونوس های رایگان a6
+
+📱 @winro_io
+</div>
+
+## IranianMinds — post 20919
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رویترز :
+
+جمهوری اسلامی چن تا پهپاد هم شلیک کرده بود که ارتش آمریکا همشونو نابود کرد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282224
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282224_1779935570.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻جيل بايدن، بانوی اول پيشين آمريکا، در مصاحبه جدیدی گفته است هنگام مناظره جنجالی و ضعيف جو بايدن در جریان انتخابات رياست جمهوری ۲۰۲۴، تصور کرده بود همسرش دچار سکته مغزی شده است.
+
+اشاره همسر رئیس‌جمهور سابق آمریکا به مناظره‌ای است که نقطه عطف انتقادها به جو بایدن و اوج گیری درخواست‌ها برای کناره‌گیری از رقابت با دونالد ترامپ شد.
+
+جیل بایدن در گفت‌وگو با شبکه سی‌بی‌اس، شریک کاری آمريکايی بی‌بی‌سی، گفت: «وحشت کرده بودم، چون هرگز پيش از آن يا بعد از آن، جو را آن طور نديده بودم. هرگز.»
+
+خانم بايدن افزود: «نمی‌دانم چه اتفاقی افتاد. وقتی داشتم مناظره را تماشا می‌کردم، با خودم گفتم: "خدای من، او سکته کرده." و اين موضوع مرا تا سرحد مرگ ترساند.»
+
+ادامه خبر را از لینک زیر در وبسایت بی‌بی‌سی فارسی بخوانید.
+
+📷 Bloomberg via Getty Images
+https://bbc.in/3PPN3Mf
+@BBCPersian
+</div>
+
+## BBCPersian — post 282223
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻گزارش‌های مردمی و رسانه‌های داخل ایران از شنیدن صدای دست کم سه انفجار در ساعات اولیه بامداد پنجشنبه در شرق بندرعباس حکایت دارد. خبرگزاری فارس، بامداد پنجشنبه نوشت: «حوالی ساعت ۱:۳۰ بامداد صدای ۳ انفجار از شرق شهر بندرعباس شنیده شد. هنوز محل دقیق و منشأ این…
+</div>
+
+## BBCPersian — post 282222
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282222_1779935571.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻گزارش‌های مردمی و رسانه‌های داخل ایران از شنیدن صدای دست کم سه انفجار در ساعات اولیه بامداد پنجشنبه در شرق بندرعباس حکایت دارد.
+
+خبرگزاری فارس، بامداد پنجشنبه نوشت: «حوالی ساعت ۱:۳۰ بامداد صدای ۳ انفجار از شرق شهر بندرعباس شنیده شد. هنوز محل دقیق و منشأ این صداها مشخص نیست و پیگیری‌ها برای مشخص شدن آن ادامه دارد.»
+
+گزارش‌های کاربرانی که برای کانال وحید آنلاین پیام فرستاده‌اند هم از شنیدن صدای دست کم سه انفجار در شرق بندرعباس حکایت دارد.
+
+همزمان فرماندهی مرکزی ارتش آمریکا - سنتکام - با انتشار بیانیه‌ای گفته است: «نيروهای آمریکایی امروز چهار پهپاد انتحاری ايرانی را که در اطراف تنگه هرمز تهديد ايجاد کرده بودند، سرنگون کردند. نيروهای آمريکايی همچنين يک ايستگاه کنترل زمينی ايران در بندرعباس را که در آستانه پرتاب پنجمين پهپاد بود، هدف قرار دادند.»
+
+📷 Reuters
+https://bbc.in/4f6UBEC
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 03:17
 ---
 
